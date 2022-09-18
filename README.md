@@ -1,1 +1,1 @@
-A rather big project which took quite a lot of time and.
+A rather big project which took quite a lot of time.
